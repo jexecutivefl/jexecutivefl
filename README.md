@@ -60,5 +60,5 @@ working on since 2012.
 ## Contact
 
 Tampa Bay, FL · remote (US) ·
-[LinkedIn](https://linkedin.com/in/jacob-greenberg-61a373131) ·
+[LinkedIn](https://linkedin.com/in/jacob-greenberg-fl) ·
 jacob.greenberg45@gmail.com
